@@ -1,4 +1,4 @@
-# win32-tampering.bat2-
+# GIVE GOLD.JS
 windows virus protector disable
 this are some blooket give gold js script files.
 
